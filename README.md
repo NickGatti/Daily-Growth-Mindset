@@ -25,6 +25,8 @@ Daily Growth Mindset Stand up / Stand down
 
 ## Path
 
+## Policies
+
 ## Seeing
 
 ## Walking
