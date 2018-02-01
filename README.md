@@ -24,7 +24,8 @@ Daily Growth Mindset Stand up / Stand down
 ```
 I know how it is man, I was there one day getting frustrated with this stuff like you.
 I still get frustrated but its not the same
-the noob frustration is the worst because you are just beginning to see how to understand other people who are helping you.
+The noob frustration is the worst because you are just beginning to see how to understand other people who are helping you.
+But trust me it goes away over time.
 ```
 
 ## Ego
