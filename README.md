@@ -42,6 +42,8 @@ But trust me it goes away over time.
 
 ## Seeing
 
+### Approaching the world as a blind man means you only have yourself in sight. It is possible to become so blinded by yourself, by what you feel and your own ego that you only ever see yourself throughout life. Everything you do is in consideration only to you never with your feelings aside. When you push how you feel aside, you're pushing yourself out of the way. Its the bridge to connect to other people.
+
 ## Walking
 
 ## Talking
