@@ -47,6 +47,8 @@ You stay here, you stay as FIXED MINDSET.
 
 ## Ego
 
+### Only One can be a fixed mindset, the rest of us are growing. One doesnt grow and cant grow, One has already grown. Try not to get yourself confused with Him or else you will stop being like him. He is the path and you never stop walking.
+
 ## Trust
 
 ## Path
