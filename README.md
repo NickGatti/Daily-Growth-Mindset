@@ -17,6 +17,8 @@ Daily Growth Mindset Stand up / Stand down
 
 ## Meaning
 
+### Meaning is a double edged sword. Its best to take meaning without emotion. The best meaning meant that you took the other persons meaning without your emotion but allowed yourself to take theirs.
+
 ## Follow through
 
 ## Learning
