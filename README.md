@@ -32,6 +32,19 @@ The noob frustration is the worst because you are just beginning to see how to u
 But trust me it goes away over time.
 ```
 
+```
+I know you feel better, I see, you have grown...  but now that you think you're a total badass.
+I can only take so much, if you really knew the entire time, you never needed anyone to show you the way.
+Please show me how, dive onto the highest limb of the tree, dance out to the very end of it and see if you fall.
+Go on and tell everyone how you never needed them, you can handle all that comes at you,
+Go on and believe that you are now in competition with Him and the one who showed you His way.
+Please give me some time to boil and when I boil I will sear this shit off of you.
+If you are of the fixed mindset, you are arrogant, you are a know-it-all
+You cant have anyone teach you and you cant learn.
+Here we go, you have grown and now you feel good, now you feel that you dont want to grow more.
+You stay here, you stay as FIXED MINDSET.
+```
+
 ## Ego
 
 ## Trust
