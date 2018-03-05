@@ -98,6 +98,8 @@ You stay here, you stay as FIXED MINDSET.
 
 ### Approaching the world as a blind man means you only have yourself in sight. It is possible to become so blinded by yourself, by what you feel and your own ego that you only ever see yourself throughout life. Everything you do is in consideration only to you never with your feelings aside. When you push how you feel aside, you're pushing yourself out of the way. Its the bridge to connect to other people.
 
+### With experience you will naturally make eye contact
+
 ## Walking
 
 ### Walk to the side of yourself and you will see everyone else.
@@ -135,6 +137,8 @@ You stay here, you stay as FIXED MINDSET.
 ### Understand emotions are the most honest thing that can come out of a person
 
 ### Never make fun of another persons emotions
+
+### With experience you will have intuition
 
 ## Thinking
 
