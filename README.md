@@ -1,6 +1,13 @@
 # Daily-Growth-Mindset
 Daily Growth Mindset Stand up / Stand down
 
+```
+If you get served shit and you serve shit...
+...If you serve love, you eat shit.
+If you get served shit and you serve love...
+...If you serve love, you eat love.
+```
+
 ## Ass-kicking
 
 ### "Seek to get your ass kicked, if you dont you cant grow. You cant grow if you dont challenge yourself."
@@ -21,7 +28,19 @@ Daily Growth Mindset Stand up / Stand down
 
 ## Follow through
 
+### Get knocked down, get your ass kicked and every time you do get the fuck up and keep moving on, and if you cant CRAWL.
+
 ## Learning
+
+### Always be a student, always allow the possibility for yourself to be wrong.
+
+### Always be a teacher, always allow the possibility to teach someone. The most learning is done when teaching.
+
+### Always allow any possibility, anything is potentially possible why not question it.
+
+### Question everything, don't just sit there and accept words at face value, think about what you hear.
+
+### Allow enough time to pass so you've be able to have time to think
 
 ### When you're just starting out:
 
@@ -31,6 +50,8 @@ I still get frustrated but its not the same
 The noob frustration is the worst because you are just beginning to see how to understand other people who are helping you.
 But trust me it goes away over time.
 ```
+
+### Fixed mindset trap:
 
 ```
 I know you feel better, I see, you have grown...  but now that you think you're a total badass.
@@ -49,11 +70,29 @@ You stay here, you stay as FIXED MINDSET.
 
 ### Only One can be a fixed mindset, the rest of us are growing. One doesnt grow and cant grow, One has already grown. Try not to get yourself confused with Him or else you will stop being like him. He is the path and you never stop walking.
 
+### Aggression is the more prominent sign of insecurity
+
+### Starting fights is the most prominent sign of weakness
+
+### Aggression is the most deceiving thing, when you're aggressive it can make you look powerful, however anyone in the aggressive position feels they are threatened
+
+### If you feel threatened you feel weak
+
 ## Trust
+
+### A bridge to trust is to put your feelings to the side and care about what the other person is saying and feeling
+
+### A bridge to trust is to leap of faith, just believe
 
 ## Path
 
+### Do not let your feelings of your emotions for other people guide you, it will cause you to be a deceiving manipulator
+
+### Allow the moment to guide you, fly by the seat of your pants, be in the moment and you will have your path
+
 ## Policies
+
+### Business policies are to be followed, however they are the greatest threat to mankind
 
 ## Seeing
 
@@ -61,10 +100,42 @@ You stay here, you stay as FIXED MINDSET.
 
 ## Walking
 
+### Walk to the side of yourself and you will see everyone else.
+
 ## Talking
+
+### Talking without yourself and you will be talking to other people
+
+### Allow time to pass between words when talking
+
+### Think about the words said
+
+### Do not try to speak fast or interrupt
+
+### Allow people to finish speaking
+
+### Address others based on their context and references not how you felt about their references and context
 
 ## Hearing
 
+### Listening to how they feel without mixing in how you feel
+
+### Think about every word said
+
+### Address other based on their context and their references not how you feel about their context and references
+
 ## Feeling
 
+### Always try to make sense of how other people feel
+
+### Always try to be empathetic
+
+### Always try to understand another persons emotions and how you effect them
+
+### Understand emotions are the most honest thing that can come out of a person
+
+### Never make fun of another persons emotions
+
 ## Thinking
+
+### Think more about others than yourself
